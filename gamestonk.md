@@ -7,4 +7,9 @@ another tweet @MrBrownEyes2020
 https://twitter.com/MrBrownEyes2020/status/1354517067240771584  
 
 yet another tweet on robinhoodapp by @KralCTrebor, note though Robinhood restricting the trading of $GME is a separate issue of the #shortsqueeze, they are related.    
-https://twitter.com/KralcTrebor/status/1354952686165225478 
+https://twitter.com/KralcTrebor/status/1354952686165225478  
+
+Yours truly @stlplace, why shorting has unlimited downside  
+https://twitter.com/stlplace/status/1355924679891017728  
+
+
